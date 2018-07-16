@@ -1,5 +1,13 @@
 # 男士香水体验报告
 ====
+[型爷香水教程](https://www.zhihu.com/question/67429618)
+
+
+![](https://pic3.zhimg.com/80/v2-f3cf4d7c939deddc70a0039793ca20ee_hd.jpg)
+
+![](https://pic1.zhimg.com/80/v2-e1100003e5aefd121fa582b9b44daa80_hd.jpg)
+
+![](https://pic4.zhimg.com/80/v2-6a123936c5143495e859da727ced8b27_hd.jpg)
 
 
 
@@ -27,4 +35,8 @@
 
 后调：茉莉、广藿香
 
-3.
+3.风之恋：
+
+4.白茶
+
+5.
